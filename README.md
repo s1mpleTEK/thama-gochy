@@ -1,0 +1,1 @@
+# README OF thama-gochy
